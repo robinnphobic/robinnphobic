@@ -1,1 +1,1 @@
-![image alt](![image]([https://github.com/user-attachments/assets/e1b293db-9bc1-4f24-8ec9-8f7f0b9a5f67))](https://media.discordapp.net/attachments/1388728383168577536/1388728501561196624/Screenshot_2025-06-28_204919.png?ex=686209b4&is=6860b834&hm=74d5e6d2ee6e6c5bcae2964eae65f54823709ad3adc5e104691a5006aecd478b&=&format=webp&quality=lossless&width=936&height=680)
+![image alt](https://files.catbox.moe/mmfhx6.png)
